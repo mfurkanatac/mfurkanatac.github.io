@@ -1,1 +1,0 @@
-# mfurkanatac.github.io
